@@ -1,4 +1,4 @@
-# 🚀 [NAMA TOKO] — Panel Hosting
+# 🚀 [SUIKA RYP] — Panel Hosting
 
 Selamat datang di **[SUIKA RYP]**! 👋
 
